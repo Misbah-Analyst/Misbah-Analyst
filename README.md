@@ -11,4 +11,4 @@ I turn raw data into clear, actionable insights.
 - 💼 More projects coming soon...
 
 **Connect with me:**
-- LinkedIn: [apna LinkedIn link yahan lagana]
+misbahsultana81@gmail.com
